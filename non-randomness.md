@@ -1,0 +1,1 @@
+inforce non randomness

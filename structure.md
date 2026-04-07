@@ -1,0 +1,124 @@
+- intentionalism
+
+- learning technique
+  - intentional learning manipulation
+  - knowledge browsing
+    - network of perspectives
+      - kermic network
+    - existence
+      - laws and structure
+      - complexity
+      - vector, motion, change
+      - linear, cyclic, spiral
+      - randomness
+      - probability
+      - manifestation
+        - reverse engineering change and causality
+        - everything comes from thought
+        - just build the structure
+      - reality structure
+      - necessary being or first mover
+      - intentional being structure
+        - separation
+        - randomness
+        - prediction (positive, negative)
+  - human context
+  - anxiety
+  - control structure, speculation
+  - build the perfect control structure
+    - principles of manifestation
+    - category of control
+      - provider
+      - consumer
+      - community
+    - speculation is each phase of learning cycle
+    - engineering each phase of learning cycle
+    - main flow
+    - supporting flows
+    - narrative continuity of single state of action / attention
+  - form of speculation in every aspect
+  - fundamental feelings
+  - empathy awakens understanding of whole
+  - language
+  - paradox of genuine thinker
+  - quaternary thinking and probability limitation
+  - single state of action
+  - perception window
+  - flows in human
+    - intelligence
+    - dumbness
+    - mobility
+    - navigation through perspective
+  - word by word or perspective by perspective development
+  - main flow - anxiety
+  - universal learning technique
+  - topic specific learning technique
+  - learning desire fulfillment
+  - aligning with limit
+  - overwhelmed
+
+- break-up
+
+- learning importance
+  - confidence
+  - break up confidence destroying pairs
+  - economic
+
+- process
+
+- philosophy
+  - genuine thinker paradox
+  - pride
+  - urge to share
+  - interactions
+    - perspective delivery
+    - hormones
+    - feel theory
+    - acknowledgement theory
+    - abuse and force learning
+    - fight among status
+    - hubris and grudge
+    - collective learning cycle
+      - simplicity
+      - emotional trauma
+      - depression
+      - authenticity
+      - requires perspective
+      - speculation (builds main flow + action)
+      - fight / war / action
+      - emotional clarity
+      - engineered civilization shortcut
+      - naming
+      - naming increases complexity
+      - naming enforces empathy
+      - naming enforces cohesion
+
+- intention
+  - reshape
+  - filtering
+  - force learning
+
+- flow
+- character
+- vibe
+- purpose
+
+- economical
+  - care
+  - decide
+  - speculation
+  - action
+
+- experience
+  - awareness
+    - selects ideas for perception and intentional manipulation
+  - perspective
+    - work of main flow
+    - gives confidence to decide
+  - desire
+
+- metaphysical
+  - non random
+  - non intentional
+
+- perception
