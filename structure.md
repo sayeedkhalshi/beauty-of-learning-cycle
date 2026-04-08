@@ -23,19 +23,28 @@
         - randomness
         - prediction (positive, negative)
   - human context
-  - anxiety
-  - control structure, speculation
-  - build the perfect control structure
-    - principles of manifestation
-    - category of control
-      - provider
-      - consumer
-      - community
-    - speculation is each phase of learning cycle
-    - engineering each phase of learning cycle
-    - main flow
-    - supporting flows
-    - narrative continuity of single state of action / attention
+    - perception window
+    - me or consciousness or how god is in it
+    - fundamental feelings 
+    - speculation
+    - language
+      - The missing layer of language to control the spirit that works based on fundamental feelings
+    - narrative continuity
+    - quaternary thinking
+    - perspective building
+    - anxiety
+    - control structure, speculation
+      - build the perfect control structure
+        - principles of manifestation
+        - category of control
+          - provider
+          - consumer
+          - community
+        - speculation is each phase of learning cycle
+        - engineering each phase of learning cycle
+        - main flow
+        - supporting flows
+        - narrative continuity of single state of action / attention
   - form of speculation in every aspect
   - fundamental feelings
   - empathy awakens understanding of whole
@@ -104,10 +113,15 @@
 - purpose
 
 - economical
+  - ideas 
+  - projection / learning intention / manifestation
+  - perspective judgemnet / analysis
+  - idea
   - care
   - decide
   - speculation
   - action
+  - rest
 
 - experience
   - awareness
@@ -116,7 +130,9 @@
     - work of main flow
     - gives confidence to decide
   - desire
-
+  - give idea a perspective
+  - connecting perspective
+  - story development
 - metaphysical
   - non random
   - non intentional
