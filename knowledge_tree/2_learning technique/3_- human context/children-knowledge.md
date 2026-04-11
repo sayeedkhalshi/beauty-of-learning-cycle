@@ -1,0 +1,1 @@
+A children already knows everything. His soul knows, but his physical brain isn't developed. But all knowing nd knowledge comes from intuition and when you mock them and and tell them you are a child and assume child dont know, you make them believe they dont know and they stop listening to their intuition which is a channel of knowledge flow.

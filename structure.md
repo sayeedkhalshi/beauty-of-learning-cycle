@@ -23,6 +23,8 @@
         - randomness
         - prediction (positive, negative)
   - human context
+    - memory - 
+      - cycle of losing memory and force to remember with emotional memory
     - perception window
     - me or consciousness or how god is in it
     - fundamental feelings 
@@ -32,7 +34,11 @@
     - narrative continuity
     - quaternary thinking
     - perspective building
-    - anxiety
+    - main flows
+      - category of main flows
+        - mental - ego, anxiety, learning, speculation, 
+        - physical - 
+      - cycle of main flow to takeover single state of action or attention
     - control structure, speculation
       - build the perfect control structure
         - principles of manifestation

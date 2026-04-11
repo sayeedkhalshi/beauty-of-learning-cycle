@@ -1,0 +1,1 @@
+When the first law emerged, the syste
