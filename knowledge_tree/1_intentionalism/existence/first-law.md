@@ -4,9 +4,9 @@ The universe is set of laws and structures of laws. In the beginning, there was 
 Imagine a structure of reality is a set of laws, then the intentional beings are a set of laws and the set of laws also created for the perception of the reality structure and given to the intentional being. Now those laws, being, reality and perception are a non existence unless the creator of the laws giving them observeability through him.
 
 # creator 
-Now all laws are all perspectives of the system. But the system doesn't exist yet. Cause the system doesn't have a actuallity. The system can't just come to reality, unless the creator of the system creating the first laws. The question is who manifested the first laws and things afterwards. So that creator created the first laws and things afterwards inside the system. 
+Now all laws are all perspectives of the system. But the system doesn't exist yet. Cause the system doesn't have a actuality. The system can't just come to reality, unless the creator of the system creating the first laws. The question is who manifested the first laws and things afterwards. So that creator created the first laws and things afterwards inside the system. 
 
-The real question becomes, how there is a cylic system, without that there wouldn't be any law or any system. The only things that bounds everything by the laws only because those laws are cyclic continuity of phases or it will be just static. The real question is, what are the structures that made the world predictable and inteeligable by the intentional being?
+The real question becomes, how there is a cylic system, without that there wouldn't be any law or any system. The only things that bounds everything by the laws only because those laws are cyclic continuity of phases or it will be just static. The real question is, what are the structures that made the world predictable and intelligeble by the intentional being?
 
 The actuality of all laws and perspectives requires the creator having something in each and every of them to experience the world. So the part of you that shows how real you are actually actual god seeing through. But that also says everything including each in every first few laws to reality structures are experienced by the creator. Which is us human being and eveything are clearly an extension from the actual creator.
 
