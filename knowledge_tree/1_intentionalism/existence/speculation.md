@@ -1,0 +1,1 @@
+Ego and hormones are two speculation from itentionalism
