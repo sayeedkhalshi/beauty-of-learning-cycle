@@ -14,4 +14,3 @@ What triggers a desire, something clicks. You know you like it. Desire seems log
 # Perception window 
 Desire moves perspective by perspectives or word by word. First you learn one perspective and explore it, you go through supporing narratives and you come back. That limit of going through supportive narratives is your perception window. 
 
-
