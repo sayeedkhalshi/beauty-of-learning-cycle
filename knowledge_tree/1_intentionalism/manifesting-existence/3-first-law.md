@@ -18,3 +18,5 @@ I imagine the reality is a very densed law system. any matter moves or functions
 When you are walking, you are walking inside a densed layer of rules. Every step you take, moves everything it needs to create that function.
 
 A small change in the highest layer, would be huge for a lower layer. 
+
+Unlike laws from speculation, laws from cycles are not absolute truth. Laws from cycles only can recommend a flow. A intentional entity can reject or acknowledge them. Thats the power of intentionalism.

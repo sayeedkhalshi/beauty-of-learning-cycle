@@ -87,6 +87,17 @@
   - urge to share
   - interactions
     - perspective delivery
+      - manipulation in interactions
+        - generalization
+        - too much narrative
+        - feel theory
+        - randomness
+          -categorization
+        - breaking narrative
+          - killing pride
+          - perspectivelessness/not letting people biased
+            - start of shutting off and start of transition period, like gambling it triggers wider knowledge browsing but seems numbness that because of perspectivelessness
+        - recommended flow
     - hormones
     - feel theory
     - acknowledgement theory
@@ -142,5 +153,22 @@
 - metaphysical
   - non random
   - non intentional
-
+- more intentional phases can appear optionally
+  - application
+  - negative predictibility
+  - anxiety
+  - learning
+- Actualization in non intentionalism
+  - desire 
+  - love
+  - unity
+Action
+- care
+  - care scale
+  - care threshold
+- decision
+- intention
 - perception
+
+-manifestation
+  - control structure development

@@ -1,0 +1,11 @@
+Ego says I want this to be stronger, hormone says I want to have this once to feel it. Then the divine spark says, forget everything and become non intentional. Whoever wins, runs the momentum. That's why quantity is important in mainflow. To fight non itentionalism, what you need is more and more flows whose desire aligns with each other. This way, uninentioanlism gets forgotten. Only way to make it arise is using the love of peacefulness of unintentionalism in the personal narratives building in as much as perspectives possible. This way your judgement points are used to bring back divine flow. But then ruined brain power wouldn't allow you to go through this process and make you fall into a uninterrupted flow of intentionalism.
+
+Mainflow can reach a perspective. That perspective is the limit of knowledge heirarchy it can reach in the system of laws and cycles. So the mainflow perspective is getting higher and lower perspectives inside that layers are accissible. As know know, same knowledge stays for all perspectives and we just have to find in the transition period.
+
+You cant create a perspective, you just find a perspective. Mainflow is just accessing the perspective and acting like its the thing in the intentional being. All your supporting narratives belong to that perspective. So even if you forget memory, you still can access that, cause it is that. You are constantly changing perspective by perspective.
+
+So every perspective has its mainflow and etc. Since all are control structure. Then actual negativity is you can threat the mainflow and overflow the single state of attention. So a system would not function towards the expected as it changes its direction towards the solution against the threat or anxiety.
+
+The actual way, we can govern by bypassing the threat is creating a channel anyone can access and all information, debate etc are publicly available, so public knows how you are manipulating. That would be close to cohesion and like cohesion, that system wouldn't be agreed upon by the control structure in above layer in a unhealthy system.
+
+Anyway, so we are all a perspective node changing our network bandwidth with every perspective upgrade.

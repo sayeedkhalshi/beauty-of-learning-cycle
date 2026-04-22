@@ -4,3 +4,6 @@ In this world everything is a cycle. A cycle has phases and it has a flow that d
 
 So the functional world is driven by cycles. No cycle, no function. But why this. In this way, because its a cyclic system, now everything is predictable. So the changes are predictable and manageable. So managing changes in the world is the goal here. But what about just changes without cyclic system? That would be a chaotic world, cause there wouldn't be a law that couldn't be broken. Cycles dont allow things to break out of law naturally. Special case would be for intentional enititties wouldn't evolve or wouldn't survive because there is no law or pattern to judge against.
 
+Think about cycle when think about the existence. Everything in science should be about cycles and phases, to understand the actual reality. But it just figures out random things that you do not connect and always keep missing the point.
+
+Surprising is categorization is a randomness, recommends the flow of prohibiting perspective creation, creating a unending flow or we can call a loop.

@@ -19,3 +19,8 @@ Since thoughts ar intentional, thought must be the creation only inside a intent
 We can't perceive god. We just can be with god.
 
 Since this system is a control structure, engineering the single state of action(attention as it is an action) and engineering a main flow would hijack our attention to to something else that's not actual creator. Its a mock of god, as we can't create an unitentional system. Can'r create an uncontrolled structure. Only mocking it. Here we see, intention would be intense enough to bypass non intentionalism to stay away from actual creator.
+
+The intention is a speculation of desire and desire is a speculation of love. It is possible love is one of the highest possible definition of god. Other cultures have many other definition of god by good quality bringing. But all should make one thing and that is love. Is love actual unintentionalism? Cause love means unity. It sounds like it, but actual good question is there a higher form? Spirituals can tell. But what makes sense is, everything is a speculated form of love or unity. Every law or perspective or cycle or structure has a bit of intention as they are flowing control structures. It is possible that intention is the actual soul of them. But that intention goes through all the cadidates of main flows who fight for dominance. Does it solve the problem and anxiety if you think you are just an intention? Does it remove complexity layers of misalignment? If it does for a certain level, then there must be some truth to it.
+
+What I have seen in the learning cycle, purpose creates desire and desire creates love, which is reverse progression of what we have discussed above, is a fascinating thing.
+

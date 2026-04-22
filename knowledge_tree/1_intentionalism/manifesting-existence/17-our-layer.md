@@ -1,0 +1,1 @@
+Our layer has a mainflow that works like a base. As strong we believe in the base, our perspective creation becomes stronger. Thats why anxiety, whose job is to create importance plays a huge role.

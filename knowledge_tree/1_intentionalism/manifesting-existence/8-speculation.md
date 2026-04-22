@@ -1,0 +1,5 @@
+Ego and hormones are two speculation from itentionalism. It is possible even intention is a specualtion. Because two way I found law can be there, one is pure speculation that sets up absolute priciple for change, cycle, intention etc. Then there is laws that are made from cyclic system that holds under the priciple of cycles. Laws under cyclic systems are manipulatable yet absolute laws aren't changable. 
+
+If this is tough to understand, I will give a simple line. The laws created because of a cyclic system are changeable by manipulating the phases or limit etc. But why cyclic system, or where the principle implies that it has to be a cyclic system is a intentional speculation from outside of the system. Thats why commands from the outside of the system is necessary.
+
+But speculation doesn't just stay out of the system. It can emerge anywhere or everywhere. One of thing we would see later how status is a speculation from initial seperation or initial pride. Speculation holds the command in an action.

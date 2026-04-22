@@ -1,0 +1,7 @@
+If something unintentional, it is not gonna change. Then how do you make the divine part of us do anything. Or make them believe that this is us, and how to make them forget the divine power in it. This is what perception engineering is.
+
+A untentional being would know no manipulation and wouldn't know how fight a manipulation. If you show them something and tell them this is you, they will think this is them. The first control structure that we believed in, that connected all other later programming to make us believe more and more structures, if you dismantle the first one, all would vanish. We wouldn't see the programming that made us believe this anymore. We become a control structure wrapped into control structures.
+
+Once we got the features to change and we also have the power to the change the structures of the system, we became a perspective development machine.
+
+Instead of categorization, that picks random thing in the system and you are never thinking about connecting them cause thats the recommended flow. If a structure picks speculations, heirarchy, layers, cycles, phases, triggers, limits, anxiety, learning, perspective creation, knowledge browsing, engineering of learning cycle and so on, then thats the actual way of designing something that makes sense in the realm. 
