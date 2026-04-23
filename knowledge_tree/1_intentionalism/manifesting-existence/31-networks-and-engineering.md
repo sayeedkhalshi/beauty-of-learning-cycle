@@ -5,3 +5,10 @@ Engineering Human Context depends on subtle finding of more and more in depth st
 3. the amount of speculation you can find
 4. the amount of change you can predict
 5. the amount of story you can build from speculation
+6. the amount of emergence of all in many level you can find
+7. the amount of bubble network you can create and see the perspective it delivers
+8. the amount of flows you can see and 
+9. the amount of response you can do for a certain flow.
+
+Then you create bubble network of them for creating certain perspectives and for intended result.
+Every part of the learning cycle is engineerable. So its the sky how much manipulation you can do.

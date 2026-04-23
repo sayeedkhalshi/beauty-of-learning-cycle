@@ -7,3 +7,5 @@ So the functional world is driven by cycles. No cycle, no function. But why this
 Think about cycle when think about the existence. Everything in science should be about cycles and phases, to understand the actual reality. But it just figures out random things that you do not connect and always keep missing the point.
 
 Surprising is categorization is a randomness, recommends the flow of prohibiting perspective creation, creating a unending flow or we can call a loop.
+
+Anything you do changes the direction of the cycle, our actions are naturally cycle defining factor. Else it becomes a cycle or a new phase.

@@ -18,3 +18,6 @@ Its magical that perspectives are a different universe each and things acts diff
 # Ven diagram
 Its the actual way how perspectives or laws creates new laws. The quaternary way.
 
+# Experience 
+Amount of perspectives under your mainflow possibly in many directions.
+
