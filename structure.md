@@ -88,6 +88,7 @@
   - interactions
     - perspective delivery
       - manipulation in interactions
+        - stoppingl learning cycle premature or concept of those cycle changes into others
         - generalization
         - too much narrative
         - feel theory
@@ -98,6 +99,7 @@
           - perspectivelessness/not letting people biased
             - start of shutting off and start of transition period, like gambling it triggers wider knowledge browsing but seems numbness that because of perspectivelessness
         - recommended flow
+        - engineerings
     - hormones
     - feel theory
     - acknowledgement theory

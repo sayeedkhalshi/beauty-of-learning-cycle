@@ -14,3 +14,8 @@ What triggers a desire, something clicks. You know you like it. Desire seems log
 # Perception window 
 Desire moves perspective by perspectives or word by word. First you learn one perspective and explore it, you go through supporing narratives and you come back. That limit of going through supportive narratives is your perception window. 
 
+# Reverse Engineering
+A baby borns with a set of everything. In the level when you can see our suffering and trauma and now you can see what is the narrative of your suffering and trying to see the anxiety network build your actions forward. Anxiety and solution recerse engineering would make you see the world of you clearly. Learning should be about creating engineering and reverse engineering all the network with narrativess that you can possibly categorize. Its not just categorizing is a problem, it is by default possibly to help the single state of action or possibly a outcome of single state of action to find things better in focus. 
+
+# Desire Of the System
+Possibly the desire of the system where all perspectives belongs is the system is to have some structures with network and narratives and see what they create with with other structures. For example, action network with learning network creating experience network. That too not all in human level.

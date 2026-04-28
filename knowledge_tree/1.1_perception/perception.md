@@ -3,7 +3,7 @@ Imagine every person creating their ow
 # Perspective Delivery
 So, what we have seen so far, its all perspectives and we learn perspectives. Then language is more materialistic, which means language has a lot of complexity on top of the learning mechanism of the universe. That makes them tough to digest as a perspective system. So, if you want to build a perpective on some perception, you have to deep dive and let your single state of action work without distraction.
 
-Thats the thing about the distance we have, emotional attachment is perspective addition to the material world. That fundamental consciene makes us numb in terms of perspectiveless and extra narrative based complexity.
+Thats the thing about the distance we have, emotional attachment is a perspective addition to the material world. That fundamental consciene makes us numb in terms of perspectiveless and extra narrative based complexity. Without emotional attachment, we feel that perspectivelessness and numbness.
 
 Since its all perspective, you conversion of perception towards perspectives takes heavy work. This perspective developement process is learning cycle. But there is a easier mechanism. That is perspective delivery. 
 
@@ -16,4 +16,5 @@ If you can say, everything is a control structure, then perspective delivery its
 Then the truth here, people dont really care about words unless they have the strength or understanding to consider words and nitty gritty of it, but then it also weakens single state of attention, so mainflow of the word gets less value than it should and supporitve narratives gets more attention, misses the mark naturally. So what we get is a perception that is not limited by conscious calculation. That perception is the complete persective delivery of the person or thing. The amount of thing you can calculate consciously are very little comparing to the whole perspective we just perceived. 
 
 That information also is picekd by our desire to find the mainflow of the perception based on our desire. It is usually that mainflow may not be the mainflow the external source delivered. Thats why our understading initially shifted from the person intend too. But that is the case the person would want too, if they are manipulating, cause supportive narrative are the reshaper or framer of the perception, you are not suppose to replace the receivers personal narratives. Thats why an honest person delivering perspective would feel hurt as they would feel not heard enough or their persepctive isn't accepted.
+
 

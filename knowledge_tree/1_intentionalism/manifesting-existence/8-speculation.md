@@ -3,3 +3,7 @@ Ego and hormones are two speculation from itentionalism. It is possible even int
 If this is tough to understand, I will give a simple line. The laws created because of a cyclic system are changeable by manipulating the phases or limit etc. But why cyclic system, or where the principle implies that it has to be a cyclic system is a intentional speculation from outside of the system. Thats why commands from the outside of the system is necessary.
 
 But speculation doesn't just stay out of the system. It can emerge anywhere or everywhere. One of thing we would see later how status is a speculation from initial seperation or initial pride. Speculation holds the command in an action.
+
+Speculation is the fastest way of development as development actually means synchronizing with higher perspective and tuning up and thats for personal and for comminuty level too. Speculation to the fullest opens up all the deep desire(all cycle expression in your wording means the fullest) that are awefully downhill than the civilizational level perspective and easily makes us see and tune up to the required ones.
+
+Since it changes the most, it creates the highest amount of activity in the society in the phase of speculation. In the civilizational cycle, speculation results activity and possibly war and fight as the wave is hard.
