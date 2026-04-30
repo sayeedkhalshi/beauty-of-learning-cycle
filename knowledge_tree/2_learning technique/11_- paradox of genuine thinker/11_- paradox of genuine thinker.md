@@ -1,1 +1,0 @@
-# - paradox of genuine thinker

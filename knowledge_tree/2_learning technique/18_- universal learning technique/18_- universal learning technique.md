@@ -1,1 +1,0 @@
-# - universal learning technique
