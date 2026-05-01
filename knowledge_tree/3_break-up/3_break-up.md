@@ -6,8 +6,10 @@ The magic is, our desire plays a huge role if break was deceived or didn't occur
 In learning break up phase a person would breakup with everything he possibly can with the information and its sources including the teacher and school too. Ignoring the break up phase would break down the person's brain as its already overwhelmed and create unbearablity that they would disapear, hide, run away or even cry when caught up since all those activity will enforce faster processing or creating new something to hold on to continue since breakup isn't possible by the system.
 
 # Learning Importance
-
+The reason we need a breakup because the brain needs to be sure that there is not more information good enough for me. This is enough and I am gonna call it a development. So the brain can have a confidence that no more information needed for full confident buildup of learning.
 
 # Learning Confidence
+But the confidence weakens if the information keeps coming or even the sources are being available to you. You will hate it and your brain will think there is more information I probably missed. So while its creating the neural connection, it feels weak and the learnig becomes less important.
 
 # Base of next learning
+The importance of the learning confidence depicts how strong base it will be for the learning.
