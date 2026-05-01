@@ -6,7 +6,9 @@ If you bring intention to desire phase, you will forget to desire.
 
 Let's imagine desire as a structure, but a speculated one. Its absolute knowing of what you want. When something in desire, its already gone through all the learning cycle phases. Including the manipulated ones that we are not aware how they came in.
 
-It helps us to full body decision to what to learn and what to make of that learning. 
+It helps us to full body decision to what to learn and what to make of that learning. It works without the need of intention unless your intention is energetic enough to turn on unintentionalism with force learning, which is a real thing too.
+
+Think of learning desire as higher structure is yourself that can govern. But its cycles and those cycles have phases and they enforce the phases and direction. Technically that how you should think of them.
 
 # Triggers
 What triggers a desire, something clicks. You know you like it. Desire seems logical as it came through the whole cycle. Desire actually coming from mainflow. The moment you find a perspective filling questions you desire, you got a point against that problem. You sowly in pendulum way building the solution to the desired problem.

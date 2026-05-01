@@ -1,0 +1,1 @@
+Group is a set of structures, yet they has to follow certain rules. To build a group, the structures has to have all the elements that completes a learning cycle. The combination of the group must have awareness of all the phases of the learning cycles or it wouldn't be able to explain the whole thing, the system wouldn't be independent.

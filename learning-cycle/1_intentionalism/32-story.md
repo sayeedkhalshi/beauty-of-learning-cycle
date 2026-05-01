@@ -1,0 +1,5 @@
+A story is experiencing a cycle through its phases. A story can be all kind. It can be perfect like starting and coming back as a loop after reset. Or it can be showing how do go different direction in a cycle by creating new phases. Every phase can have many stories going many direction. Then they can have more. It can be infinite way going. 
+
+A story is just another name of a flow. It is same and have all the properties of a flow. But a story has a narrative, the narrative is decribing the main flow perspective of it. A story is expressable. A story is perspectivefull and same way speculation adds more perspective. Speculation follows higher bias higher accuracy and when you remove speculation from a story, it loses the highest points of that perspectives, makes it numb and less connectable.
+
+A story is a perspective or built of many perspectives. A perspective can have many stories.
