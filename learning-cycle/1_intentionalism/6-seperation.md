@@ -7,3 +7,4 @@ If there is a dominant flow of anxiety of survival and anxiety of keeping pride,
 If EGO dominates, to show them better, the game becomes about accumulation, that includes the length of survival period.
 
 For an intentional being, being around all the cycles changing their own way in a set of limits, resets and continuity is scary.
+

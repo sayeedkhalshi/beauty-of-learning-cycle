@@ -27,3 +27,5 @@ A child is born with a set of perspectives. It already have higher structures of
 So, not shutting or framing the childs newly developed philosophies, enforcing them to face the resources where their learning processing happening, causing conflict with their break up mood with the resources while they are processing them, makes the upcoming philosophy weak as they feel information missing as the resources are opened to them premature. That weak importance breaks the continuity of the narrative too.
 
 Beware of status controlled people breaking your child's pride over new learning.
+
+Candidates of mainflow narratives builds the approach of learning technique in the technique phase, which speculates the learning approach.
