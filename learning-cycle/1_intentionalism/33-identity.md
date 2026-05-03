@@ -7,3 +7,5 @@ We became a learning the first time we believed in any law. Any law said this is
 Anxiety is a self chaining system.
 
 Above the god's intention that you can say our divine part, we got a layer of cycles and that layer is our identity layer with cycles. Identity itself a layer from a cycle and its cyclic instead of a speculation. It keeps changing and learning and that's a good way to hide it from knowing what it is.
+
+Imagine a structure, where it can think of anything(any perspective based narrative) as its identity, then moves in actualizing every network it creates around that, its not true for every structure but for itself. So it can believe in anything and create network around it and actualize it.

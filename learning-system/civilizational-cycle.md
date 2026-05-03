@@ -1,11 +1,14 @@
 1. Simplicity
-2. Emotional Trauma
-3. Depression
-4. Authenticity
-5. Requires Perspective
-5. Specualtion, cause perspective has to build main flow and action requires speculation
-6. Fight or war or action
-7. Emotional clarity
+2. Love
+3. Speculated desire cycle built up
+4. Rejection
+5. Emotional Trauma
+6. Depression
+7. Authenticity
+8. Requires Perspective
+9. Specualtion, cause perspective has to build main flow and action requires speculation
+10. Fight or war or action to break the flow
+11. Emotional clarity
 
 But an engineered civilization that will gain better
 8. Naming

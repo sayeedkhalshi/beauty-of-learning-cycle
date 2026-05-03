@@ -2,4 +2,6 @@ A story is experiencing a cycle through its phases. A story can be all kind. It 
 
 A story is just another name of a flow. It is same and have all the properties of a flow. But a story has a narrative, the narrative is decribing the main flow perspective of it. A story is expressable. A story is perspectivefull and same way speculation adds more perspective. Speculation follows higher bias higher accuracy and when you remove speculation from a story, it loses the highest points of that perspectives, makes it numb and less connectable.
 
-A story is a perspective or built of many perspectives. A perspective can have many stories.
+A story is a perspective or built of many perspectives. A perspective can have many stories. 
+
+Mainflow of a structure or cycle basically comes from the story or story itself. Where all the candidates in the mainflow decides how to shape the story, which candidate leads where and impacts the perspective creation. Then gaining the single state of action or attention becomes the game for them and a decision making complexity for it.
