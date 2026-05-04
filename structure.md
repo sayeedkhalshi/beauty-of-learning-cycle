@@ -117,11 +117,12 @@
       - emotional clarity
       - engineered civilization shortcut
       - naming
-      - naming increases complexity
-      - brings confusion
-      - enhances perception window
-      - naming enforces empathy
-      - naming enforces cohesion
+        - naming increases complexity
+        - brings confusion
+        - enhances perception window
+        - naming enforces empathy
+        - naming enforces cohesion
+        - naming brings awakening of society
 
 - intention
   - reshape
