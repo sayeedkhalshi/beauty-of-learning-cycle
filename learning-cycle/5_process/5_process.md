@@ -4,3 +4,5 @@ Learning process is mainly an unconscious process of neural development and the 
 In this phase people stays in break up phase as break happens in the processign phase. 
 
 The process
+
+# The Actualization
