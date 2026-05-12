@@ -1,0 +1,1 @@
+Early ideas coming from writing the first few speculative theories when they were very early and not so mature.

@@ -1,0 +1,1 @@
+When the learning cycle starts with desire and all the way goes back to desire feels like a loop. Then it can set any perspective as its mainflow perspective and have the freedom of choice to be running in. 

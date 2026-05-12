@@ -1,0 +1,1 @@
+Rants are from vocal interaction medium that I expressed to understand the inner thoughts. Many of them doesn't exist in my theory development yet they helped to find the perspectives greatly. Also to build the model more connecting with each other. So if you wish, you can read them. But avoiding them wouldn't make you lose much.
