@@ -1,0 +1,3 @@
+Multiple solution backfires and still resolves the misunderstanding to a certain state is what positive story engineering is. If a story doesn't multiple solution and solves the soultions as problem itself, then that story is negative story engineering.
+
+A story has many parts. Narrative, Continuity, Character, Interaction, Prediction, Direction, Perspectives(being aware of the perspective, see the layers down the line etc), Problem, Exploration Solution etc. A story is fundamentally a solution engineering. Gives anxiety and gives solution to it. So instead if not multiple level of reasoning doesn't exist, it will be a huge problem dumbing down the community.
