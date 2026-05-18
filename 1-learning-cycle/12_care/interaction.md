@@ -11,3 +11,19 @@ But it's not always what human thinks, because attachment is a like a cheating m
 So when a system provider, the structure provider thing, because they have a pride also, now they are also learning that people are following their recommendation, and sometimes it happens that their pride get speculated, becomes hubris, and at that point, also when people are aware that, okay, people are going through their learning cycle, and they are aware that the system is actually undermining them, the system is actually manipulating them, and recommending the flaws and using them, or even hurting their own personal narrative, which is one of the biggest point where people have this grudge, Z-R-U-D-G-E, grudge, I mean grudge, okay? Hybrids and grudge. People have to have this gravity in the system, in the provider, or against the recommender. This is how we actually now move on in the society, and this becomes a collapse of the society in that collapse of the system or the provider.
 
 This collapse is a collapse of social contract. And when collapse of social contract means the relationship and acknowledgement is not there anymore, and when that happens, the system fails.
+
+# Interaction
+Interaction between two entities are about change of each other. As a physical entity who is stable, we 
+1. Want to change each others physicality to support our main narrative
+2. Want to change is others non physical structures like flows
+
+# Intentional Interaction
+Intentional interaction is also another name for passive aggressiveness and charisma. Unintentional interaction is another name for nice and good behaviour. Most important part of intentional interaction is - 
+1. Flow
+2. speed
+3. Rejection
+4. Synchronization
+5. Change
+6. Deception in smooth takeover
+
+So if an intentional being isn't fundamentally language based. So, for language level communication, we need to learn and go through the cycles to figure out a approach or learning technique to approach any perception as well as interaction perceieveness. So a deception can't be easily picked. You have a set of flows that are interacting and has an stake to change on percieveness that all has their own set of approach techniques. Those techniques has their limits and weaknesses that can be used or misled or confused or halted by a far smarter intentional actor.
