@@ -1,0 +1,1 @@
+Doubt comes from thinking of connection to the existing perspectives in your network. Doubt is not skeptism. Skeptism comes from specalution of status control.

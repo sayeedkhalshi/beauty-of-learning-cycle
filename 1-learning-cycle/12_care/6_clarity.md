@@ -1,0 +1,1 @@
+Owning brings clarity. Because speculation is done, owning is done, clarity would like to persist as long as it can. People can sit and enjoy the ride. With no confusion about the available perspectives to connect, cause life still predictable with owned memory.

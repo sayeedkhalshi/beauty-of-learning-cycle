@@ -1,1 +1,1 @@
-The Formula To Understand Manipulation By Super Power - A Solution To The New World Order
+The Formulas To Understand Manipulation By Super Power - A Solution To The New World Order

@@ -27,3 +27,8 @@ Intentional interaction is also another name for passive aggressiveness and char
 6. Deception in smooth takeover
 
 So if an intentional being isn't fundamentally language based. So, for language level communication, we need to learn and go through the cycles to figure out a approach or learning technique to approach any perception as well as interaction perceieveness. So a deception can't be easily picked. You have a set of flows that are interacting and has an stake to change on percieveness that all has their own set of approach techniques. Those techniques has their limits and weaknesses that can be used or misled or confused or halted by a far smarter intentional actor.
+
+
+Lets differentiate between the acceptor and the provider. Who provides thinks they are in lead, who accept, think they are submissive. But actually all this an illusion. We see many kind of creativity in this game of interaction. Please figure out their way out of initial PTSD based reaction. 
+
+In expression,
