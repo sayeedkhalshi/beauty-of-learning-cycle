@@ -4,3 +4,6 @@ If people connects and think they will own the knowing of god, that would become
 
 Then habit of owning everytime a knowing makes us dumb and follow the resource. Every action that we do has to map its movement to a certain owning. So being fixated on owning and its mapped action, will make you go through a loop, a confident action in a loop in every call.
 
+If even everyone knows, we are manipulated and we need to fight back, we will just never agree on a single point. That's how speculative owning is a fundamental rule to make confident super power.
+
+# Super Power

@@ -6,7 +6,7 @@ It's a dynamic game. Anyone can build the next perspective to shift the narrativ
 
 # Approach engineering
 
-# Technique engineering, Evolvement engineering
+# Technique engineering, Technique Evolvement engineering
 
 # Acknowledgement engineering
 
@@ -80,3 +80,4 @@ It's a dynamic game. Anyone can build the next perspective to shift the narrativ
 ## Others
 # Force Learning Engineering
 # Breaking Narrative Engineering
+# Owning Engineering
