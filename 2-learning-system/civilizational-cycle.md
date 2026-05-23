@@ -11,8 +11,19 @@ Any guild or collection of perspective would go through the civilization collect
 8. Requires Perspective
 9. Specualtion, cause perspective has to build main flow and action requires speculation
 10. Fight or war or action to break the 
-11. Owning
-12. Emotional clarity
+
+
+Cycle of Owning
+1. Owning
+2. Emotional clarity
+3. Owning brings accumulation
+4. Owning becomes identity
+5. Identity becomes Status
+6. Status needs protection
+7. Protection brings control
+8. Control brings hubris an grudge
+9. Hubris and grudge breaks social contract
+
 
 But an engineered civilization that will gain better
 8. Naming
