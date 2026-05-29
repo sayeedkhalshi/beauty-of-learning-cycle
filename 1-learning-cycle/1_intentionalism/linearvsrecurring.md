@@ -1,0 +1,3 @@
+For an intentional being learning reality is not exactly cyclic but recurring until its solved. Also learning of something is the whole existence of the thing to that being. There is a threshold of amount of knowledge you need to learn of it to fullfill the desire. Learning desire is a set of rule or it is constantly being updated or created. But it is as high as it can be for a being. When we need to learn to fullfill a desire, we go through recurring loop to fullfill all the learning desire. 
+
+It happens that our thought process is one by one and comparing. So, you can' actually feel the recurrance, you feel linear but you can learn to observe it as recurring through the awareness of it.

@@ -29,3 +29,6 @@ So, not shutting or framing the childs newly developed philosophies, enforcing t
 Beware of status controlled people breaking your child's pride over new learning.
 
 Candidates of mainflow narratives builds the approach of learning technique in the technique phase, which speculates the learning approach.
+
+# Narrative Development Skill
+The basics of sentence is you can connect a few sentence coming and make a story out of it. But you can't do that for a few events happening in a continuty. You will see causality and you try connecting  each event and try to find the story in it and predict next. To predict next, you need to learn how events work in a way you learned about how few sentence works together. Then you will see the words, syllables and letters in it, then you learn letters are ink.
