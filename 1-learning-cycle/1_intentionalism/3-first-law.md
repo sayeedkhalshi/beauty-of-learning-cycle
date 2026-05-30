@@ -20,3 +20,6 @@ When you are walking, you are walking inside a densed layer of rules. Every step
 A small change in the highest layer, would be huge for a lower layer. 
 
 Unlike laws from speculation, laws from cycles are not absolute truth. Laws from cycles only can recommend a flow. A intentional entity can reject or acknowledge them. Thats the power of intentionalism.
+
+# Start With An First Law
+Every universe will start with a first few laws that are coming from the intention of making it.

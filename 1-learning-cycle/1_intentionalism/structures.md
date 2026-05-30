@@ -1,0 +1,7 @@
+Structures are set of structures or principles or laws. Structures are also given the same intention that we all get. Similar to us, small structures can be so aligned with the bigger layer that it becomes part of the bigger layer. Its automatically does its thing in the system of the layer. This is all perspective game.
+
+Positive structures can be anything used to do some positive work in the system and negative structures can be anything used in negative ways. If a structure that is also a perspective does influence some other perspective creation, that perspective can become part of it.
+
+Negative perspectives are let's say demonic or let's say fear would enlarge with us and make us part of it too. So inviting anxeity in the initial stage is the worst thing you can do. Yet positivity is the only best thing you can do. Both and also many other perspective can fight for becoming your mainflow and can't act as a candidate if you invite it so much.
+
+When in layerism, we are solving each and every problem with a solution, we are actually finding more and more perspective to explain that same structure to understand it's from many perspective. What we mean by knowing is knowing many perspective to explain the same thing. Once the desure if fullfilled, we can finally understand it.
