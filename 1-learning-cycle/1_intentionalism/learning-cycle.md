@@ -49,9 +49,35 @@ It is a universe of law and structure. Those mechanism and princiciples are what
 
 For learning mechanism, its learning cycle. First phase of learning cycle is desire cycle that are very close to mechanism cycles on top of all.
 
-Desires are a set of cycles, that are performing that action to solve the problem created by the intention. Through perception, desire selects which to perceive to learn. Which information to click in mind.
+Desires are a set of cycles, that are performing that action to solve the problem created by the intention. Through perception, desire selects which to perceive to learn. Which perspective to click in mind.
 
 Then there is approach cycles which know and create (another learning cycle starts here) approach. Approach is enforcing a single state of action and made of techniques. Also can be called learning tehniques. There is an universal approach that has techniques to approach anything, which it gets from mainflow as mainflow perspectives are the highest in layer, so it can be simplied to use as a law or principle when you approach.
 
-There are many many approaches for everything you learn. So you can face it. Think of it like a network of perspective itself and has layers of techniques and top one is the highest as same as mainflow. There can obstacle if your mainflow and universal learning technique isn't same as you didn't go through all the phases to learn it.
+There are many many approaches for everything you learn. So you can face it. Think of it like a network of perspective itself and has layers of techniques and top one is the highest as same as mainflow. There can be obstacles if your mainflow and universal learning technique isn't same as you didn't go through all the phases to learn it.
 
+There is a mechanism of upgrading learning techniques in each learning cycle. It also updates the universal learning technique with every cycle.
+
+Then in the learning technique phase, we do perspective engineering by removing, adding, creating new perspectives there from that percieved perspectives. It can be done is many layers and many direction. Sine the amount of perspective is infinite from one point, we can create as many. We can have many desire cycle created for learning technique phase and we may engineer for many direction. But that takes huge overwhelming afterward and suffering. Also we tend to suffer to create even a new desire by starting a new learning cycle here just so that our feelings of unfullfillment by the lack of desire that could shape that initially perceived perspective better. This can create huge amount of branch cycles too. 
+
+But one point we always get ovewhelmed or we actually feel enough engineering with it, it fits my personal narrative, let's acknowledge it. The acknowlwedgement or rejection of that previously engineered perceived perspective can be be actualized in your own perspective network.
+
+After learning actualization or learning processing phase, we actually now can use it as ourselves. When you create a new perspective, I call it learning philosophy. 
+
+# For human, we have access to more phases in the learning cycle.
+Learning philosophy is actually a perspective that your brain now as a structure in material world would like to map the fundamental feelings of this world. That the brain can map it by matching with worldly feelings of perception of this world to the learned philosophy. I call it fundamental feelings. 
+
+But that already dumbs down the philosophy. Then we have a thought layer and language layer. In thought we talk with us and that inner laguage dumbs it down more. Then the language layer is more opinionated that it loses its original authenticity.
+
+So a geuine thinker would call it deception or manipulation and wouldn't find himself honest. That's the paradox of a genuine thinker. That makes us perceive the reality wrong way in leverage.
+
+Then we got the love for it, we got the pride for it, we got the urge to share it. In this intentional phase, we actually use that philosophy in our life and learn it more or break the narrative. When enough amount of use of that intention makes it part of us, our action of it can now be done without making it in the intention. That's now our learning flow.
+
+We act in flows. All our flow are making our character. If our character itself a flow, then it depends on how to express it through single state of action. 
+
+Character flow through actions and those actions are our story. Each story has a narrative and that narrative enforces a continuity.
+
+Our story expresses through our perspective.
+
+Those perspective then has to be vibing by all the organs of our body. This makes the universe assume our purpose and let it design for you. 
+
+The purpose we care enough. Care threshold crosses and we act on it.
