@@ -38,3 +38,20 @@ Now that you need to act, you must be caring enough. That care phase directs you
 
 That experience of purpose driven work slowly builds our perspective and story. Our story is all our perspectives adding each other. Our awreness of the story of eventually brings the awakening, which can enable the reverse engineering of our desire or possibly higher structure that manifests the reality.
 
+# A reinroduction to learning cycle
+Reality that is perspective and that is materialistic has been created from perception of thought structures that only got it because of the intentions. Intention and perspective both are opinionated, making the world existentially opinionated towards something. So unintentionalism is actually a exit from this world that matches the unintentional omni above all.
+
+For this world every intention is a cycle that has a perspective, that creates a perspective through cycles. If you call this mechanism changing, for an intentional being, its learning.
+
+Those cycles create structures that are build of 1) mechnism cycles and 2) performer cycles. Mechanism cycles defines how the follower cycle behaves. Its called follower because through acknowledge and rejection phase (a phase in learning cycle) it can accept and reject cycles as its mechanism. The super power of learning cycle is, it can also create a cycle and learn that cycle as mechanism for itself. 
+
+It is a universe of law and structure. Those mechanism and princiciples are what we made of.
+
+For learning mechanism, its learning cycle. First phase of learning cycle is desire cycle that are very close to mechanism cycles on top of all.
+
+Desires are a set of cycles, that are performing that action to solve the problem created by the intention. Through perception, desire selects which to perceive to learn. Which information to click in mind.
+
+Then there is approach cycles which know and create (another learning cycle starts here) approach. Approach is enforcing a single state of action and made of techniques. Also can be called learning tehniques. There is an universal approach that has techniques to approach anything, which it gets from mainflow as mainflow perspectives are the highest in layer, so it can be simplied to use as a law or principle when you approach.
+
+There are many many approaches for everything you learn. So you can face it. Think of it like a network of perspective itself and has layers of techniques and top one is the highest as same as mainflow. There can obstacle if your mainflow and universal learning technique isn't same as you didn't go through all the phases to learn it.
+
