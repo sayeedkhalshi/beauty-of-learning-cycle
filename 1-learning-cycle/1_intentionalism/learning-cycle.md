@@ -70,7 +70,9 @@ But that already dumbs down the philosophy. Then we have a thought layer and lan
 
 So a geuine thinker would call it deception or manipulation and wouldn't find himself honest. That's the paradox of a genuine thinker. That makes us perceive the reality wrong way in leverage.
 
-Then we got the love for it, we got the pride for it, we got the urge to share it. In this intentional phase, we actually use that philosophy in our life and learn it more or break the narrative. When enough amount of use of that intention makes it part of us, our action of it can now be done without making it in the intention. That's now our learning flow.
+Then we got the love for it, we got the pride for it, we got the urge to share it. In this intentional phase, we actually use that philosophy in our life and learn it more or break the narrative. When enough amount of use of that intention makes it part of us, our action of it can now be done without making it in the intention. That's now our learning flow. 
+
+This is where interaction medium comes in play and we go through collective or civilizational learning cycle.
 
 We act in flows. All our flow are making our character. If our character itself a flow, then it depends on how to express it through single state of action. 
 
@@ -80,4 +82,8 @@ Our story expresses through our perspective.
 
 Those perspective then has to be vibing by all the organs of our body. This makes the universe assume our purpose and let it design for you. 
 
-The purpose we care enough. Care threshold crosses and we act on it.
+The purpose we care enough. Care threshold crosses and we act on it. We go through action projection cycle.
+
+That gives us learning awakening and learning awareness of the flow we run in.
+
+Then that learning becomes our desire so it can decide which perception to take as a new learning cycle.
