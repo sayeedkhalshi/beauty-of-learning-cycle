@@ -13,3 +13,7 @@
 13. Not force learning
 14. Unintentionalism - possibly trimmed down to let them spend time where they do nothing.
 15. Owning - So this doesn't go towards materialistic owning
+16. Non grid structures in your house but natural ones
+17. Water like caregiver, sacrifice your narrative
+18. No certainty and abstractness but a continous flow
+16. Non accumulative nature through soothing hormonal discharge to normal steadiness

@@ -7,3 +7,6 @@ To achieve owning, similar to the learning cycles, you go through learning cycle
 Owning isn't awareness. Awareness is knowing, but owning is speculated pride. Owning isn't believing, it can be fragile in believe but hard solid to rely on while you need to act on it. Owning is like acting to own it. Because you own it in mind not physical. So acting works like its real and it is real.
 
 A new born owns it and the old ones own it. In the middle too much narrative makes it complex for us to focus, vibe and own it.
+
+# Ownership illusion
+People think they have to own it to learn it. But actually any knowledge is accessible without owning. But this one huge illusion creates a speculation of accumulative world.
