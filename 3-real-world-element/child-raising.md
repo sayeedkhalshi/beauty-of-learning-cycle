@@ -16,4 +16,5 @@
 16. Non grid structures in your house but natural ones
 17. Water like caregiver, sacrifice your narrative
 18. No certainty and abstractness but a continous flow
-16. Non accumulative nature through soothing hormonal discharge to normal steadiness
+19. Non accumulative nature through soothing hormonal discharge to normal steadiness
+20. Don't do micro things and macro things for them. Has to learn nothing is free, you gotta make it happen.

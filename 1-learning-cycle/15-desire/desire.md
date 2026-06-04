@@ -1,0 +1,1 @@
+Desire is the thing that makes us what we are actually. Its biggest job in the learning cycle is maintain the learning cycle and set techniques and rules to function each phase and mechanism of it. Talking to your desire is the absolute way to learn through acknowledgement and rejection of a perspective you perceieved. It also allows what to acknowledge and what to reject.
