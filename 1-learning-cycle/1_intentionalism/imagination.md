@@ -44,3 +44,5 @@ Structure and any kind of superficial structure would create a new being like de
 I'm saying it could be created. It's a possibility that Soviet may fall on thousand times and Soviet may create one thousand AMR or other AIs in the polar AI could do the same.
 
 Now, the possibility means it is allowing. That means the possibility or probability that exists in the AI also. That's a very scary thing. And yeah, Monad is allowing it, then that means if we are the imagination of Monad, then our job is to find the truth, know the knowledge. That's a very hard knowledge. It's a very hard thing to do because we are forgetting, we already forgot, we don't know what we are. That means people are suffering for thousands of lifetimes. That's bullshit.
+
+When you have a idea, if it amplifies, it can go far and as far as it can go is the limit of its truth. Beyond it won't exist and it will be flawed.

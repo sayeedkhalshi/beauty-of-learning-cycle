@@ -19,3 +19,14 @@ Yeah, so now, so love has to be experienced in this childhood so that you know w
 
 # Love
 Love is vibrate, warm emotions that too hard to contain if you don't have the ownership and intention of love itself. Its the process where owning and intention are diverted to love so much it becomes a true ownership that doesn't bring separation anymore.
+
+Love is not gentle. Love is action. Love is energy. Only if you have never tasted love, you will not know, love is more real than matters. Love is more dense that reality. You can see love, you can feel love, you can smell, you can taste it. Only when you feel it, you know it was there all the time. You just learned to see it. Thats why I learn to be aware of love through relationship and unconditional care. Or love won't be visible. All you do, all you sacrifice, so you can be aware of love and you need nothing else.
+
+# Love reemergence
+Our ownership model or ownership cycle tells that imagination flourish through words and sentences since we browse knowledge while making sentences. Thats because each words is a perspective and desire to make each sentence you build like a theory enforces imagination. So thinking below words or how words are made from many words takes us below the surface level of reality and we start to imagine the reality in structures.
+
+Ownership makes us believe in our words and discard other's word. But other owns their word that you reject. Makes us never find the unity with others we search for in other people's perspective. Makes us channel the lack of love to validation emergency. Through many many heartache we finally realize there is no one to  unite and we simply become just ourself. That makes us raise our kids to be reserved and reserved more. Makes us and our kid avoidant and no talking with each others. Makes us lose our ability and spark of love that we find through conversation and that we now fail to cultivate imagination less and less. The more we crawl towards the civilization cycle, the ownership cycle creates a loop where people lose and lose the imagination and faith on love.
+
+When love is to hide, love is not to talk, when the expression is block, you never had a container you could hold love, you can't actually face love.
+
+This one problem that first narrative tackles down is, when the first few month, a child can learn to believe on the care giver through responsive caregiving, the child can speculate so much that it handles love energy though itself and learns to navigate life from it. But when a parent is fearing this enourmnous too real thing, they feel fear and tries to block it through narrative breaking. That tells us a explorer is fundamentally a love energy navigator.

@@ -1,0 +1,1 @@
+When you have a idea, if it amplifies, it can go far and as far as it can go is the limit of its truth. Beyond it won't exist and it will be flawed.
