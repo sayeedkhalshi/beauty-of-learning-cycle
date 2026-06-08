@@ -29,4 +29,7 @@ Ownership makes us believe in our words and discard other's word. But other owns
 
 When love is to hide, love is not to talk, when the expression is block, you never had a container you could hold love, you can't actually face love.
 
-This one problem that first narrative tackles down is, when the first few month, a child can learn to believe on the care giver through responsive caregiving, the child can speculate so much that it handles love energy though itself and learns to navigate life from it. But when a parent is fearing this enourmnous too real thing, they feel fear and tries to block it through narrative breaking. That tells us a explorer is fundamentally a love energy navigator.
+This one problem that first narrative tackles down is, when the first few month, a child can learn to believe on the care giver through responsive caregiving, the child can speculate so much that it handles love energy though itself and learns to navigate life from it. But when a parent is fearing this enourmnous too real thing, they feel fear and tries to block it through narrative breaking. That tells us a explorer is fundamentally a love energy navigator. But the navigator of exploring perspective becomes the story teller far greater than the place explorer on earth.
+
+
+You have to understand every cycle is a story. SInce a perspective is a mainflow generation of a flow, then that exaplaining(cycle) a story is also story.
