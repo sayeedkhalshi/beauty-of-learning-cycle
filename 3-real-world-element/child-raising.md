@@ -18,3 +18,14 @@
 18. No certainty and abstractness but a continous flow
 19. Non accumulative nature through soothing hormonal discharge to normal steadiness
 20. Don't do micro things and macro things for them. Has to learn nothing is free, you gotta make it happen.
+
+21. Interactin model ready - 
+    a. expression - all expression ready in first 3-4 months before face matures
+    b. confident - make confident with people
+    c. Base layer - Among all mainflow of interaction - One mainflow candidate should be social and civilization base layer(used as base for communication. Base layer is staying model where a person lives) ready.
+    d. High low, good bad candidates for mainflow
+
+Protection - 
+22. Soft and non compressed communication is what allows many more flows to be alive or they compressed out.
+23. Activate feelings or keep feelings by pushing the whole body sensation time to time. So they can hold the energy of love.
+24. 

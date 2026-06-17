@@ -1,0 +1,1 @@
+1. Do we expericne the world with just without the forgotten senses or with the experience of the forgotten senses? When we remember, do we remember that too? This living experience from that lense?
