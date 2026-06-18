@@ -18,6 +18,6 @@ So masculinity is the structure to create this intelligence thing. Because intel
 
 Every act of intelligence is an act of more more separation. Every perspective is seperation. But when you put unintentinalism in a perspective, you put god devoted onesness in the perspective or you direct that perspective toward god and then you act as a cohesion of many  would make it connected to god instead of separated. That's why cohesion then comes from an intention and that is also masculinity of controlling own flow to be in a team. 
 
-
+Anxiety causes the attempt make a single perspective by narrowing down perspectives around would make the person destroy thinking ability to be thinking in sequence.
 
 Soft and non compressed communication is what allows many more flows to be alive or they compressed out.
