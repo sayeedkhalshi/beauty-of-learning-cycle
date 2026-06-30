@@ -1,0 +1,1 @@
+Since you need a lot of speculation, overenthusiasm is the only way to function is thing world. It may sound like more trust than usual on the belief, which in technical, you can say more importance on base layer of activity. Then also, the base must be above of speculation layer so action is freqeunt not lazyness.

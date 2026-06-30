@@ -1,0 +1,1 @@
+In action, when you speculate, how much you speculate creates how big your transition process is. Its not about time of the process, its about how many you missed out that other party of the interaction is noticing.

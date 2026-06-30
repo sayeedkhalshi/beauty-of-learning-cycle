@@ -19,6 +19,7 @@
 19. Non accumulative nature through soothing hormonal discharge to normal steadiness
 20. Don't do micro things and macro things for them. Has to learn nothing is free, you gotta make it happen.
 
+Advanced-
 21. Interactin model ready - 
     a. expression - all expression ready in first 3-4 months before face matures
     b. confident - make confident with people
@@ -28,4 +29,9 @@
 Protection - 
 22. Soft and non compressed communication is what allows many more flows to be alive or they compressed out.
 23. Activate feelings or keep feelings by pushing the whole body sensation time to time. So they can hold the energy of love.
-24. 
+24. Transition period management - transition allows us to specualte and where whisper can be pushed.
+25. Repeatition and base - if you repeat the view for a wandering new born, they would find it as a base to act on. That would bring their confient and hyper activity. Hyper activity is there only if a base is good enough to rely on. If you provide complex base in emergence, that child would be so energetic and active you will be scared.
+
+
+Love Energy - 
+Now if you do all that right, next, you bring love energy by repeating some activites, you will get huge love energy and over enthusiasm.
