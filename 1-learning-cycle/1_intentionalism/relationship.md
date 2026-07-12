@@ -1,0 +1,1 @@
+Relationship between perspectives and structures is the thing 

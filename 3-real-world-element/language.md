@@ -13,3 +13,11 @@ I am talking about knowing as a mechanism, the mechanism of knowing coming from 
 intentionalism is that we have this problem to understand that our own perspective is giving us the problem, that our own perspective is flawed, and our perspective, and as we know, the job of mindfulness is to act from a perspective. So that perspective, if you are intentional, you are acting from that perspective. That's why your understanding is going to be flawed because you are inside that perspective. Other people are in another perspective. But when you are unintentional, you got no taste, you got no perspective. And that's the absolute knowing and it is a numbness. So that's why you will not perform, you will freeze.
 
 1. Language is mapping from higher level to lower level. Now if you need to talk, you need to keep the flow of higher level and skip low level to keep the momentum and speed. That makes you learn to skip the lower level knowing. That's why language is tool to hide reality
+
+2. Keeping up means keep up flow. That means its an art form. WHatever humans are creating and absorcbing are art form. Less art means less understable. If you talk, you gotta use the single state flow so the single state of action mind could digest it in real time, So,  usually and any art form and language are a problem of limitation.
+
+3. Less focusing on the empphasization of the words wouldn't deliver the perspective well and that would what a person in trans state or actual knowledge browing state wouldn't be able to follow.
+
+4. You gotta start with a feeling and keep up, that would drain your thought process from knowledge browsing to performing, makes us perform in the stage of the world.
+
+5. Narrative driven new phase in your cycle can create your life progress as well as mainflow driven. Mainflow driven progress is more by default mode network and narrative driven is more from recommended flow.
