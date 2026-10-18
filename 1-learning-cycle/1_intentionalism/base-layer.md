@@ -2,4 +2,4 @@ Mainflow is used as a base layer for a intentional structure to act on. Base lay
 
 Base layer is something that is hard to destablize, but if you can that person would be broken. Fight of status breaks this base layer.
 
-It is also acknowledged or learned through the cycle. 
+It is also acknowledged or learned through the cycle. Base of learning can be easily created by manipulation if there you can build more actions on that recommended flow or a pushed idea, where now that idea becomes the base of some new flows and if you could keep nurturing, you may go big with it. Thats how control structures try to manipulate us.

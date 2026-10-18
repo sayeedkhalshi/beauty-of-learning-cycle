@@ -1,0 +1,1 @@
+You can browse through any perspectives and learn what it is and make them work for you or you can work for them. That's why holding your own pride is so important. DIssolving ego doesn't mean losing pride. In some level, your EGO that makes you lead.

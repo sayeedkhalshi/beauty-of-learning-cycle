@@ -25,3 +25,6 @@ The intention is a speculation of desire and desire is a speculation of love. It
 What I have seen in the learning cycle, purpose creates desire and desire creates love, which is reverse progression of what we have discussed above, is a fascinating thing. Learning desires are our higher self and the highest self is the total unity.
 
 Nothing should get god like intensiveness. That would bring larger than life things and extremism. In time of speculation, we should stay away from giving anything that. The more you give away, the universe gives back.
+
+God is like a mind of a child. Not  by it doesn't understand anything. But by living from the first initial memory only. Only wonders and scared of the existence as being. But it is far away from other fragments. So gets scared of them. Because they are child, they only know what god the collective knows. Babies are not below the memory of the collective. Thats why they act innocent. The hurtfulness it gets makes it stronger but the pain is like how god level first memory feels pain but because of the flow. The real good wouldn't feel pain because it doersn't have a source to pain as it complete. But because trhe flow created in the imagination of god, this flow makes it feel the pain flow as pain is the break of flow or insecure single state of authority in action. 
+

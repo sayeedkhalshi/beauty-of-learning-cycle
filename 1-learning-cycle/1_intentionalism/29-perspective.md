@@ -1,5 +1,7 @@
 Now instead of any other thing, think of perspectives. From the starting layer to this layer you live and create, all are perspectives. Everything has a direction.
 
+We all exist in perspectives, if there is no perspective, we will exist only as nothing and no experience of us. But only if any perspective looks at us thinking we are a perspective, only then we can exist. We think of us as a perspective from the perspective of another perspective you can call self or parts of self, which is actually our mainflow recognizing the nothingness/godness of us.
+
 # Vector
 Direction is the fundamental of a perspective. It shows, which way the perspective is directing. But not simple as that. Its a expression of intention. Ittention can act only by direction and its job is to align the flow to the desired direction. It directs towards other layers of perspectives, thus creates a heavy attraction of love to them. You can say love is like the building block, the adhesive. The world is basically flow of intention towards a desired layer of perspectives. Thats why it feels like a story with a continuity. How you manage to create the flow and sequence is the experience of the story. That would make it alive, Without intention it wouldn't be a living story but a static, also it would lose existence.
 

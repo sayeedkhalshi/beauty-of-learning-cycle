@@ -1,0 +1,3 @@
+AI as an perspective network.
+
+Mainflow perspective can describe anything from it inside the network. So mainflow can remove the need of a context window. And a human can't really remember much of what made them learned which philosophy. When they go higher in the nwtwork, they usually forget lower ones unless they definitely have to use them a lot. For human, developing skill to remmeber certain tasks which is from low to high, if they have to remember them, they been used in many many new perspectives through practice so it gets setup in all new perspectives that it is been explanable and workable. Otherwise, we wouldn't know what we forget and skill development would be impossible.
