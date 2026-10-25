@@ -163,4 +163,5 @@ Now if you do all that right, next, you bring love energy by repeating some acti
 37. Hold your side head or side forhead with the baby. Baby will get stress free. 
 38. Whoever holds first few hours, baby copies their nervous system.
 39. Not being inconsistent with rules
-40. 
+40. Cancelling emotional illusion. If calling to the white light beam is the attraction you feel and then also that same type of attraction or emotion you feel to emotional abused people or to family are the same type of not love emotion for lets say soul contracts that you divert too makes you feel chained.
+41. Going for the middle point always. Not the best and not the worst. In a problem situation finding the middle point is same as knowledge browsing and makes you see the right path that will lead your purpose to the best pissible goal for the future. If the choice is best then the goal changes towards that and actual goal goes further away, if choose worst, happens the same, ,but if you choice the middle point by knwoledge browsing to mitigate loss and go with a minimum gain, you actually gain for the actual goal where your purpose is not shifted for wrong way.
